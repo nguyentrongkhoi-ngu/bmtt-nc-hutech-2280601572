@@ -1,2 +1,2 @@
-# bmtt-nc-hutech-2280601572
-NguyenTrongKhoi-28060572
+# bmttnc-hutech--2280601572
+# Nguyễn Trọng KhôiKhôi
